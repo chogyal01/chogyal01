@@ -7,7 +7,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate more with people.
 - 🥅 2021 Goals: Contribute and learn more.
-- ⚡ Fun fact: I love to read Manga, watch anime and Playing basketball.
+- ⚡ Fun fact: I love to read Manga, watch anime and To Play basketball.
 
 ### Languages and Tools:
 
